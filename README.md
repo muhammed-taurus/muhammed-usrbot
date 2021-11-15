@@ -1,11 +1,13 @@
   <p align="center">
-<img src=https://www.linkpicture.com/q/TAURUSGFX.jpg>
+<img src=https://www.linkpicture.com/q/TAURUSSIR.png>
+ 
+  <p align="center">
 
 ```
-0:35 ━❍──────── -5:32
+     0:35 ━❍──────── -5:32
 ```
 ``` 
-   *↻       ⊲    Ⅱ    ⊳      ↺*
+   ↻       ⊲    Ⅱ    ⊳      ↺
 ```
 
 ### 𝄟 taurus editz on YouTube subscribe me link here 
